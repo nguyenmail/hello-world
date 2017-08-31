@@ -1,3 +1,3 @@
 # hello-world
 I am a ***WEEB***
-:shit:, :shit:, :shit:
+:shit::shit::shit:
