@@ -1,3 +1,2 @@
 # hello-world
-kdfghkdsghksjg
-sdfgbdfgkjdfg
+I am a weeb
